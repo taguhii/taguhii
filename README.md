@@ -8,4 +8,3 @@
 🍀 Detailed-oriented, responsible, on-time, and high-quality.
 
 💘 I love to work with you. Thank you ✨✨✨
-📫 How to reach me - Email & Skype - taguhi.gevorgeyan@gmail.com
